@@ -1,1 +1,2 @@
 # Receita-2024
+# GALERIA.CR7-2024
